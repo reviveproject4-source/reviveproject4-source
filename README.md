@@ -1,4 +1,4 @@
-# Hi, I'm Tri Raida
+# Hi, I'm Marlina Andriyani,
 
 ### Business & System Analyst
 
